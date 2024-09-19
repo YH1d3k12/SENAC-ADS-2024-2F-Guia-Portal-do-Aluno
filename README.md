@@ -1,0 +1,1 @@
+# SENAC-ADS-2024-2F-Guia-Portal-do-Aluno
